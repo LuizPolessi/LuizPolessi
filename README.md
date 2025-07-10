@@ -16,6 +16,6 @@
 
 ## Forma de contato 📫
 
-📧 Email: luizh2310@gmail.com<>
+📧 Email: luizh2310@gmail.com<br/>
 <a href="https://www.linkedin.cbr/om/in/luiz-henrique-mercatelli-polessi-4219b6b2/"> Linkedin </a>
 
